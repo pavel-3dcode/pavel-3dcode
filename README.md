@@ -18,7 +18,7 @@
 ---
 
 📫 Контакты
-- Telegram: [@wtf_rizz] (https://t.me/wtf_rizz)  
+- Telegram: [@wtf_trizz] (https://t.me/wtf_trizz)  
 
 ---
 
